@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kyairra Arwani
+- 👀 I’m interested in UX-UI Design and art.
+- 🌱 I’m currently learning UX and coding.
+- 💞️ I’m looking to collaborate on UX projects
+- 📫 How to reach me: kyairra.arwani@gmail.com 
